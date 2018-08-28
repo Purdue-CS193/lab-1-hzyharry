@@ -3,4 +3,7 @@
 
 CS193 is a nice course XD
 
-- happy day
+- 114514
+- 1919
+- 893810
+- 334364
